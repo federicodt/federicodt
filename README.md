@@ -2,7 +2,7 @@
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I'm an investigative journalist, specialized in corruption and money laundering. Also in public spending. I have a master's degree and a university teaching degree, both in journalism. One day, I don't remember which one precisely, I fell in love with data. That's why I'm currently doing the "Lede Program", an intensive course in data journalism, at Columbia University's Graduate School of Journalism.
 
-If you want to know more about me: :arrow_down:
+If you want to know more about me :arrow_down:
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Federico Teijeiro was born the year Muhammad Ali announced his return to boxing. He has traveled through acting, advertising and computer engineering courses. He even considered being a seminarian. He finally found his calling: to investigate and tell stories. Adults follow paths. The children explore. That's why he became a journalist, because they are allowed to ask questions and find out how the world works. He is a Journalist, with a Master degree and Professor, dedicated to research; especially corruption and money laundering. He considers the news to be the first draft of history. He also specializaed in public spending, sports and politics, aeronautical issues; among others. He did the Summer Investigative Reporting Course at Columbia University's Graduate School of Journalism. He is now attending the Lede Program, an intensive data journalism course, also at Columbia.
 
