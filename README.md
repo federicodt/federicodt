@@ -1,6 +1,6 @@
 # **Hi! I'm Federico. 👋🔍🕵️‍♂️📃💻:writing_hand:**
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I'm an investigative journalist, specialized in corruption and money laundering. Also in public spending. I have a master's degree and a university teaching degree, both in journalism. One day, I don't remember which one precisely, I fell in love with data. That's why I'm currently doing the "Lede Program", an intensive course in data journalism, at Columbia University's Graduate School of Journalism.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;I'm an investigative journalist, specialized in corruption and money laundering. Also in public spending. I have a master and a university teaching degree, both in journalism. One day, I don't remember which one precisely, I fell in love with data. That's why I'm currently doing the "Lede Program", an intensive course in data journalism, at Columbia University's Graduate School of Journalism.
 
 If you want to know more about me :arrow_down:
 
